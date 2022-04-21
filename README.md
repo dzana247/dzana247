@@ -18,5 +18,6 @@ Fremdsprachen die ich spreche:
 * Türkisch - Grundkenntnisse
 * Latein - Grundkenntnisse
 
-> Audentes fortuna iuvat - Glück begleitet die Mutigen. 
+> Audentes fortuna iuvat - Glück begleitet die Mutigen.
+ 
     Ein Satz, der mich dürch Leben führt. 
